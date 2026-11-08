@@ -241,4 +241,4 @@ Halo Infinite is available as a full free version, including all features and up
 Dive into the action and download Halo Infinite now for an unparalleled gaming experience!
 
 ---
-**Last updated:** 2026-11-08 16:51:46 UTC
+**Last updated:** 2026-11-08 20:53:49 UTC
